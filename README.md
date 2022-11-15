@@ -1,0 +1,1 @@
+# gostmagaz.github.io
